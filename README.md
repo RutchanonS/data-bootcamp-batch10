@@ -12,4 +12,4 @@ Data science and analytic projects
 reach out to me at rutchanon.sangklat@gmail.com
 
 ## image
-![CR7](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.marca.com%2Fen%2Ffootball%2Fmanchester-united%2F2022%2F07%2F06%2F62c54d43ca4741d7238b45e6.html&psig=AOvVaw15nWDW1169H5ezhQ5ssnc5&ust=1725262937026000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCOjE1ryfoYgDFQAAAAAdAAAAABAE)
+![CR7](https://phantom-marca.unidadeditorial.es/f71d8cb97ac59cc42e97619a511a45c1/resize/828/f/jpg/assets/multimedia/imagenes/2022/07/06/16570942482622.jpg)
